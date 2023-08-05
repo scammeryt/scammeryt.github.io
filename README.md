@@ -1,0 +1,1 @@
+# scammeryt.github.io
